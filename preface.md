@@ -1,5 +1,7 @@
 ## Preface
 
+### Finding Stillness in a Restless World
+
 We live in a world that rarely invites us to be still. Our days are filled with messages, obligations, ambitions, and an endless stream of information competing for our attention. We are encouraged to accomplish more, move faster, improve ourselves, and remain continually connected. Even our moments of rest can become opportunities for productivity, measured by how effectively they prepare us for whatever comes next.
 
 There is much to appreciate about the modern world, and few of us would willingly abandon its comforts and possibilities. Yet something within us can grow weary of the constant movement. We may find ourselves longing for a quieter way of being, one in which life is not continually evaluated by what we accomplish or how we compare with others. We may begin to wonder whether the fullness of life has less to do with accumulating experiences and more to do with learning how to be present to the ones we already have.
